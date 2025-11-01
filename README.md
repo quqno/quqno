@@ -27,3 +27,6 @@
    <img width="700" height="400" alt="as" src="https://github.com/user-attachments/assets/bb93eae1-84a1-433e-a490-9d8d352bc50a" />
 
 ────────────────────────────────────────────────────────────────────
+
+![GitHub Views](https://komarev.com/ghpvc/?username=quqno&color=000000&label=⠀‪‪❤︎‬)
+
