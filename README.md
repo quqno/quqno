@@ -6,9 +6,9 @@
 <div align="center">
 ───────୨ৎ───────
 
-⋮ㅤ<ins>po</ins>lina ㅤ/ㅤ p*o*lyaㅤ၄၃
+⋮ㅤㅤ<ins>po</ins>lina ㅤ/ㅤ p*o*lyaㅤㅤ၄၃
 
-. [carrd](https://quqno.carrd.co/) ‧ [info](https://t.me/quqnoinfo) ‧ [artchannel](https://t.me/quqn0) .
+. [carrd](https://quqno.carrd.co/) ‧ [info](https://t.me/quqnoinfo) ‧ [artchannel](https://t.me/quqn0) . [fav.ships](https://teletype.in/@oejll/j_2AD-ItygJ#L3mG)
  
  f**e**<ins>el</ins> free to c+h, i*n*t me ***!!***
 <div align="center">
