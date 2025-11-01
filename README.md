@@ -10,7 +10,7 @@
 <div align="center">
 ^_^
 
- 
+ 𖦹
 
 
 <img width="450" height="300" alt="2212" src="https://github.com/user-attachments/assets/ccd4ee16-9311-4567-ab4b-fd99e86add5e" />
@@ -18,5 +18,7 @@
 ㅤㅤ
   ㅤㅤ
   <div align="center">
-<img width="450" height="400" alt="ityr54" src="https://github.com/user-attachments/assets/59a21258-8770-4aff-8a87-b6e42abbb484" />
+<img width="700" height="400" alt="545" src="https://github.com/user-attachments/assets/277088a5-05c8-43a2-b564-39599e7a0699" />
+
+
 
