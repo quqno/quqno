@@ -3,7 +3,7 @@
 
 
 <div align="center">
-───────୨ৎ───────
+
 
 ⋮ㅤㅤ<ins>po</ins>lina ㅤ/ㅤ p*o*lyaㅤ︶ㅤ၄၃
 
