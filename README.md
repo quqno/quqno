@@ -7,7 +7,7 @@ feel</ins> free to c+h, i*n*t me
 ㅤㅤㅤㅤ
 ㅤㅤㅤㅤ
   <div align="center">
-<img width="600" height="500" alt="2212" src="https://github.com/user-attachments/assets/ccd4ee16-9311-4567-ab4b-fd99e86add5e" />
+<img width="500" height="300" alt="2212" src="https://github.com/user-attachments/assets/ccd4ee16-9311-4567-ab4b-fd99e86add5e" />
 
 
 <div align="center">
